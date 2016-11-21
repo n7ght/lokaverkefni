@@ -1,0 +1,2 @@
+# lokaverkefni
+fight the power
